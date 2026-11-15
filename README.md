@@ -1,2 +1,0 @@
-# Jarvis2_mobile-edition
-MY ASSISTANT JARVIS-MOBILE-EDITION 
